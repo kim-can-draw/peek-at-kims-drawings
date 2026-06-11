@@ -32,6 +32,7 @@ a collection of my older drawings ♡
 
 
 🌸･｡ﾟ✧ ♡ ✧ﾟ｡･🌸
+
 ![](01.jpg)
 ![](02.jpg)
 ![](03.jpg)
@@ -55,6 +56,7 @@ a collection of my older drawings ♡
 💗 but they're memories from my younger artist days ♡
 
 🌸･｡ﾟ✧ ♡ ✧ﾟ｡･🌸
+
 ![](13.jpg)
 ![](14.jpg)
 ![](15.jpg)
